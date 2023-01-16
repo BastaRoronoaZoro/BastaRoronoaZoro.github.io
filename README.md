@@ -16,6 +16,27 @@ Cassandra Ybarola
 You wanna be my Friend?
 We are, We are on the cruise!
 ウィーアー!
+ぜんぶまに受けて 信じちゃっても
+肩を押されて 1歩リードさ
+今度会えたなら 話すつもりさ
+それからのことと これからのこと
+つまりいつもピンチは誰かに
+アピール出来る いいチャンス
+自意識過剰に!
+しみったれた夜をぶっとばせ!
+宝箱に キョウミはないけど
+ポケットにロマン、それと
+You wanna be my Friend?
+We are, We are on the cruise!
+ウィーアー!
+ありったけの夢をかき集め
+捜し物を探しに行くのさ
+ポケットのコイン、それと
+You wanna be my Friend?
+We are, We are on the cruise!
+ウィーアー!
+ウィーアー! ウィーアー!![MV5BODcwNWE3OTMtMDc3MS00NDFjLWE1OTAtNDU3NjgxODMxY2UyXkEyXkFqcGdeQXVyNTAyODkwOQ@@ _V1_](https://user-images.githubusercontent.com/122426673/212587566-14799d74-3f37-4b45-8160-12e816cea798.jpg)
+
 ![image](https://user-images.githubusercontent.com/122426673/212585129-d6a8b5ef-8a76-4756-a91f-13f42c6fb2f7.png)
 
 
