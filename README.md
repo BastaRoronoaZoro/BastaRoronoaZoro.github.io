@@ -25,10 +25,14 @@ And it takes forever
 To let my brain get better
 You keep me close
 You keep me close
+![325375496_567515745264931_5086782124824356096_n](https://user-images.githubusercontent.com/122426673/212584523-dd986353-337f-4297-8bec-55f8dd3ebd0b.jpg)
+
 
 **My Favorite Anime** 
 - One Piece
 - BlueLock
 - Reborn
+
+
 
 
