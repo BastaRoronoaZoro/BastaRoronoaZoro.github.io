@@ -35,7 +35,7 @@ We are, We are on the cruise!
 You wanna be my Friend?
 We are, We are on the cruise!
 ウィーアー!
-ウィーアー! ウィーアー!![MV5BODcwNWE3OTMtMDc3MS00NDFjLWE1OTAtNDU3NjgxODMxY2UyXkEyXkFqcGdeQXVyNTAyODkwOQ@@ _V1_](https://user-images.githubusercontent.com/122426673/212587566-14799d74-3f37-4b45-8160-12e816cea798.jpg)
+ウィーアー! ウィーアー!!
 
 ![image](https://user-images.githubusercontent.com/122426673/212585129-d6a8b5ef-8a76-4756-a91f-13f42c6fb2f7.png)
 
@@ -45,6 +45,8 @@ We are, We are on the cruise!
 - BlueLock
 - Reborn
 <iframe width="560" height="315" src="https://www.youtube-nocookie.com/embed/dM7x1PNZDo0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+![image](https://user-images.githubusercontent.com/122426673/212587698-34075857-0e4c-422d-b197-75ad9e8817b0.png)
 
 **My favorite korean idols**
 - BLACKPINK
