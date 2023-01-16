@@ -25,14 +25,14 @@ And it takes forever
 To let my brain get better
 You keep me close
 You keep me close
-![325375496_567515745264931_5086782124824356096_n](https://user-images.githubusercontent.com/122426673/212584709-a58284a3-3bb5-4fd2-a498-4b853c995544.jpg)
+![image](https://user-images.githubusercontent.com/122426673/212585129-d6a8b5ef-8a76-4756-a91f-13f42c6fb2f7.png)
+
 
 **My Favorite Anime** 
 - One Piece
 - BlueLock
 - Reborn
 
-<iframe width="560" height="315" src="https://www.youtube-nocookie.com/embed/POe9SOEKotk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 **My favorite korean idols**
 - BLACKPINK
