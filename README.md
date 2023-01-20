@@ -1,41 +1,7 @@
 Cassandra Ybarola
 **9 Arrowsmith**
 
-ありったけの夢をかき集め
-捜し物を探しに行くのさ ONE PIECE
-羅針盤なんて 渋滞のもと
-熱にうかされ 舵をとるのさ
-ホコリかぶってた 宝の地図も
-確かめたのなら 伝説じゃない!
-個人的な嵐は 誰かの
-バイオリズム乗っかって
-思い過ごせばいい!
-ありったけの夢をかき集め
-捜し物を探しに行くのさ
-ポケットのコイン、それと
-You wanna be my Friend?
-We are, We are on the cruise!
-ウィーアー!
-ぜんぶまに受けて 信じちゃっても
-肩を押されて 1歩リードさ
-今度会えたなら 話すつもりさ
-それからのことと これからのこと
-つまりいつもピンチは誰かに
-アピール出来る いいチャンス
-自意識過剰に!
-しみったれた夜をぶっとばせ!
-宝箱に キョウミはないけど
-ポケットにロマン、それと
-You wanna be my Friend?
-We are, We are on the cruise!
-ウィーアー!
-ありったけの夢をかき集め
-捜し物を探しに行くのさ
-ポケットのコイン、それと
-You wanna be my Friend?
-We are, We are on the cruise!
-ウィーアー!
-ウィーアー! ウィーアー!!
+I would like to share you one of my favorite ongoing anime since One Piece is a Japanese manga series written and illustrated by Eiichiro Oda. It has been serialized in Shueisha's shōnen manga magazine Weekly Shōnen Jump since July 1997, with its individual chapters compiled into 104 tankōbon volumes as of November 2022.
 
 ![image](https://user-images.githubusercontent.com/122426673/212585129-d6a8b5ef-8a76-4756-a91f-13f42c6fb2f7.png)
 
