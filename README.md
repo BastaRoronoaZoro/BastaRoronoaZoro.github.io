@@ -34,6 +34,7 @@ I also like k-pop not only anime but k-pop also. This k-pop idols that I'm about
 
 
 
+
 **SPOTIFY PLAYLIST**
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/14XLUySagFhP9KoqOTg5ka?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
