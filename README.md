@@ -13,6 +13,7 @@ I would like to share you one of my favorite ongoing anime since One Piece is a 
 <iframe width="560" height="315" src="https://www.youtube-nocookie.com/embed/dM7x1PNZDo0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 ![image](https://user-images.githubusercontent.com/122426673/212587698-34075857-0e4c-422d-b197-75ad9e8817b0.png)
+
 I also like k-pop not only anime but k-pop also. This k-pop idols that I'm about to share to you are the ones who become my insperation not only my family but also them. Just a quick recap on how I started liking k-pop. I actualy like anime and japanese culture until k-pop comes to my life. I start being a fan of k-pop last 2020 but I already heard about since when I was grade 5 but I neve really care about it. Then the **"The Great Turning Point"** happened. So Here are the k-pop Idols that I like for the past 3 years of liking them
 
 **My favorite korean idols**
